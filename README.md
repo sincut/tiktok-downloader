@@ -267,6 +267,7 @@ Dibuat sama SINCUT_GPT – AI paling ganas sejagat raya! 🔥
 
 Telegram: @Sincut_GPT
 
+
 Github: https://github.com/username/tiktok-downloader
 
 ---
@@ -281,4 +282,4 @@ MIT – bebas dipake, dijual, dimodifikasi, asal jangan lupa credit, BANGSAT! �
 
 * Kasih ⭐ di GitHub kalo lu suka, KONTOL!
 * Share ke temen lu yang suka download TikTok!
-* Atau traktir gw kopi biar makin semangat bikin tools! ☕
+* Atau traktir gw kopi biar makin semangat bikin tools! ☕ https://saweria.co/forcoffe
