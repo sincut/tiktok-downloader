@@ -282,4 +282,5 @@ MIT – bebas dipake, dijual, dimodifikasi, asal jangan lupa credit, BANGSAT! �
 
 * Kasih ⭐ di GitHub kalo lu suka, KONTOL!
 * Share ke temen lu yang suka download TikTok!
-* Atau traktir gw kopi biar makin semangat bikin tools! ☕ https://saweria.co/forcoffe
+* Atau traktir gw kopi biar makin semangat bikin tools! ☕ 
+https://saweria.co/forcoffe
